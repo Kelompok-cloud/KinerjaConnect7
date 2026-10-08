@@ -1,1 +1,1 @@
-KinerjaCOnnect7
+KinerjaConnect7
